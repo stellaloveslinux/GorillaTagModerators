@@ -121,4 +121,4 @@ Dumbass stinky people we hate!
 |------|----|----|----------------|
 |DAD8F5689EC1FC51<br>1EE38B9C6B26E3E0|MUSI/MEOWSCAS|nothing good|"alleged" pedo|
 |2ECA95BDE7C7C6B7|LXVR|nothing good|MUSI/MEOWSCAS's Partner, attempting to defend them|
-|3791B7E4F10CBD08|BoltVRGT|Youtuber|dumbass|said the f slur, accuses random people of being racist
+|3791B7E4F10CBD08|BoltVRGT|Youtuber|dumbass|said the f slur, accuses random people of being racist|
