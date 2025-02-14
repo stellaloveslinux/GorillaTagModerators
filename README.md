@@ -77,8 +77,6 @@ Youtubers/Tiktokers
 |3D1CEB386458CAE1|ThatSharkk|Tiktoker|none|
 |E3553B08810C205C|GMask|Youtuber|Before a gtag youtuber, now a Yeeps youtuber|
 |DAC8982021A6B1BE|Bengal|Youtuber/Tiktoker|none|
-|3791B7E4F10CBD08|BoltVRGT|Youtuber|King|
-
 
 Finger Painters
 |UserID|Name|Rank|Additional notes|
@@ -123,4 +121,4 @@ Dumbass stinky people we hate!
 |------|----|----|----------------|
 |DAD8F5689EC1FC51<br>1EE38B9C6B26E3E0|MUSI/MEOWSCAS|nothing good|"alleged" pedo|
 |2ECA95BDE7C7C6B7|LXVR|nothing good|MUSI/MEOWSCAS's Partner, attempting to defend them|
-
+|3791B7E4F10CBD08|BoltVRGT|Youtuber|dumbass|said the f slur, accuses random people of being racist
